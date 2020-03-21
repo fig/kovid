@@ -19,7 +19,7 @@ After installing:
 
 ☝️ Avoid touching your eyes, nose and mouth with unwashed hands later.
 
-✌️ Disinfect your phones, keys, doorknobs and anything you touch often than you should.
+✌️ Disinfect your phones, keys, doorknobs and anything you touch more often than you should.
 
 
 
